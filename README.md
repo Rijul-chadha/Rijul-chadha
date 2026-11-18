@@ -1,7 +1,7 @@
 # Hi, I am Rijul Chadha
 
 - **Student** at Toronto Metropolitan University
-- **Seeking Co-op/Internship** for Summer 2025
+- **Seeking Co-op/Internship** for Summer 2027
 
 ## About Me
 
